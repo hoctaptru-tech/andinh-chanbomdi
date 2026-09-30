@@ -1,1 +1,0 @@
-# andinh-chanbomdi
